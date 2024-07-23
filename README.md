@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @jjlindoEE
 - 🌱 I’m currently studying electrical engineering at MSOE
-- 👀 I’m interested in cars, I am a member at my universities formula studnet team
+- 👀 I’m interested in cars, I am a member at my universities formula studet team
 - 📫 How to reach me: johnlinden35@gmail.com
 - 😄 Pronouns: He/They
 
