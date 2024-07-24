@@ -1,6 +1,6 @@
 - 👋 Hi, I’m John Linden
 - 🌱 I’m currently studying electrical engineering at MSOE
-- 👀 I’m interested in cars, I am a member at my universities formula studet team
+- 👀 I’m interested in cars, I am a member at my universities formula student team
 - 📫 How to reach me: johnlinden35@gmail.com
 - 😄 Pronouns: He/They
 
